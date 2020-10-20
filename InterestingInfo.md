@@ -1,0 +1,1 @@
+Did you know that Michael Collins was the furthest from any other human than any other human has ever been since the very beignning of mankind. This happened when he circled to the far side of the moon on July 20, 1969.
